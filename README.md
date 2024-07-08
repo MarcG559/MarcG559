@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Computer system ...
 - 💞️ I’m looking to collaborate on everything that can help me in programming ...
 - 📫 Text me on whatsapp: +52 938 135 2267
-- 😄 Pronouns: MaecG559
+- 😄 Pronouns: MarcG559
 - ⚡ Fun fact:Basket-ball
 
 <!---
